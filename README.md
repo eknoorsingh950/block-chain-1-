@@ -1,4 +1,4 @@
-# Assignmnet 1 : IU2141230248 eknooe singh 
+# Assignmnet 1 : IU2141230248 eknoor singh 
 
 Submitting Date: 09/08/2024
 
